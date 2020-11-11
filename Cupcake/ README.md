@@ -1,0 +1,3 @@
+This basic cupcake recipe comes out perfectly every time; it makes 24 cupcakes – and is one of our most popular cupcake recipes! Decorate any way you like.
+
+Our basic cupcake recipe makes fluffy cupcakes that are versatile and can be decorated for birthdays or other special occasions, or even just for a special Sunday afternoon treat. These simple cupcakes can be decorated with our homemade buttercream to create beautiful cupcakes.
